@@ -8,3 +8,5 @@ Yo biatch give me back my toy,
 you think you're everything just because you're a boy,
 but i'm a feminist didn't you know,
 so move aside and don't mess with me so i loose my flow.
+
+The new dog was so impressed by the rap that he gave Rosie back her toy and agreed to be her friend forever. Blah, blah, blah. 
