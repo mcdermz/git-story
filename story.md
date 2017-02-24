@@ -12,3 +12,7 @@ so move aside and don't mess with me so i loose my flow.
 The new dog was so impressed by the rap that he gave Rosie back her toy and agreed to be her friend forever.
 
 But...
+
+she was  
+
+Rosie is a dog and she likes to rap 
