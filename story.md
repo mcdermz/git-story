@@ -13,4 +13,4 @@ The new dog was so impressed by the rap that he gave Rosie back her toy and agre
 
 But...
 
-what up!!!!!!
+But... There was a new dog in town!
