@@ -11,5 +11,5 @@ so move aside and don't mess with me so i loose my flow.
 
 The new dog was so impressed by the rap that he gave Rosie back her toy and agreed to be her friend forever.
 
-But...
+They formed a gang, rapped battled other gangs hard... and I mean hard.. to the point where American idle was like yo woof, we need more dog rappers. It's the new trend and all the rage these days. Kids love that shit so lets get you on board so we can sell merchandise. 
 
